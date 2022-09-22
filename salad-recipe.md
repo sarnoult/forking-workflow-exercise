@@ -1,4 +1,4 @@
-* 4 tomatoes
+* 3 tomatoes
 * half a cucumber
 * small union
 * 5 olives
